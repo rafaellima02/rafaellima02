@@ -1,5 +1,10 @@
 ### Olá! meu nome é rafael lima👋
 
+![image](https://github.com/rafaellima02/rafaellima02/assets/124894746/59b00735-210b-48fc-9264-62b22be68a39)
+
+
+
+
 ##
 <div>
   <a href="https://github.com/rafaellima02">

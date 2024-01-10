@@ -1,8 +1,7 @@
 ### Olá! meu nome é rafael lima👋
 
-![gif](https://github.com/rafaellima02/rafaellima02/assets/124894746/59b00735-210b-48fc-9264-62b22be68a39)
 
-
+![S44maEE](https://github.com/rafaellima02/rafaellima02/assets/124894746/796b273a-6d42-456a-ac92-c6acc6a7b100)
 
 
 ##

@@ -1,4 +1,4 @@
-### Olá! meu nome é rafael lima👋
+### Hi, I'm Rafael Lima. Nice to meet you!👋
 
 
 ![S44maEE](https://github.com/rafaellima02/rafaellima02/assets/124894746/796b273a-6d42-456a-ac92-c6acc6a7b100)
